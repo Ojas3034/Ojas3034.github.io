@@ -1,3 +1,3 @@
 # Digital Profile
 
-## WHat do i add? 
+## What do I add? 
